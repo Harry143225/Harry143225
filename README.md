@@ -5,8 +5,7 @@
 - 📫 How to reach me by conatcting with social media
 
 
-Social Media:
+contact me: 8555018369
 
- Twitter: Harshith143225
- Insta: Harshith_bollisetty
+
  
