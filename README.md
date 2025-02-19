@@ -5,7 +5,7 @@
 - 📫 How to reach me by conatcting with social media
 
 
-contact me: 8555018369
+contact me: Harshithhari225@gmail.com
 
 
  
