@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @  BOLLISHEETY SAI HARSHITH  as per Aadhar card
+- 👋 Hi, I’m @  BOLLISHEETY SAI HARSHITH  
 - 👀 I’m interested in Scalling the applications
 - 🌱 I’m currently learning SRE
 - 💞️ I’m looking to collaborate on for MNC companies
