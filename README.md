@@ -3,7 +3,6 @@
 - 💞️ I’m looking to collaborate on for ANY companies
 - 📫 How to reach me by conatcting with social media
 
-
 contact me: Harshithhari225@gmail.com
 
 
